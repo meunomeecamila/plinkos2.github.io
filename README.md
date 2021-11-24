@@ -1,1 +1,1 @@
-# plinkos2.github.io
+# pinko1-modelo
